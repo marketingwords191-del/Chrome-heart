@@ -5,3 +5,4 @@ https://chromeehearts.de/chrome-hearts-cap/
 https://chromeehearts.de/chrome-hearts-hoodie/
 https://chromeehearts.de/chrome-hearts-t-shirts/
 https://chromeehearts.de/chrome-hearts-jeans/
+https://chromeehearts.de/chrome-hearts-kette/
