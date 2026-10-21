@@ -6,3 +6,4 @@ https://chromeehearts.de/chrome-hearts-hoodie/
 https://chromeehearts.de/chrome-hearts-t-shirts/
 https://chromeehearts.de/chrome-hearts-jeans/
 https://chromeehearts.de/chrome-hearts-kette/
+https://chromeehearts.de/chrome-hearts-long-sleeve/
